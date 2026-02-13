@@ -4,14 +4,14 @@
 
 Laten we eerlijk zijn: ons hoofd kan soms van alles rechtpraten wat eigenlijk krom is, vooral als het gaat om verlangens die niet in het standaard 'wat-doen-we-tussen-de-lakens-handboek' staan. Je ziet iets, leest iets, of fantaseert over iets, en dan komt dat twijfel-stemmetje van binnen: "Is dit écht iets voor mij, of praat ik mezelf iets aan omdat het spannend klinkt?" Alsof je interne kompas tussen een "authentiek verlangen" en "FOMO" blijft hangen...
 
-Geen paniek. Deze twijfel is niet alleen normaal, het is juist *gezond*. Het betekent dat je nadenkt of jouw 'urges' en er niet blind achteraan rent. Laten we het navigeren met wat ik wel noem: je persoonlijke **Kink-GPS-je**.
+Geen paniek. Deze twijfel is niet alleen normaal; het is juist *gezond*. Het betekent dat je nadenkt over jouw 'urges' en er niet blind achteraan rent. Laten we het navigeren met wat ik wel noem: je persoonlijke **Kink-GPS-je**.
 
 ## Vier checkpoints voor je gezondheidscheck
 
 ### 1\. De "Waarom-nu" Check (de Motivatie-analyse)
 
-Een gezond verlangen voelt als een uitnodiging, niet als een *dwang*. Vraag jezelf af: "Komt dit vanuit nieuwsgierigheid, plezier of zelfontdekking?... Of komt het vanuit een drang om pijn in mezelf te verdoven, een leegte te vullen, of aan andermans verwachtingen te voldoen?"   
-*Even als metafoor:* een gezonde verkenning is als een spontane roadtrip omdat je de route mooi en interessant vindt. Jezelf iets aanpraten is als op de snelweg rijden omdat je denkt dat je die route móét, gaan rijden terwijl je eigenlijk honger hebt en moet plassen. **Tip:** Als je antwoord is: "nou gewoon, omdat het *hot* is!" dan is het groen. Als je antwoord is: "omdat mijn *partner* het graag wil", dan is dat geen stoplicht voor rood, maar wel voor oranje: pauzeer en onderzoek even verder of jij het *zelf* ook graag wilt.
+Een gezond verlangen voelt als een uitnodiging, niet als een *dwang*. Vraag jezelf af: "Komt dit vanuit nieuwsgierigheid, plezier of zelfontdekking?"… Of komt het vanuit een drang om pijn in mezelf te verdoven, een leegte te vullen, of aan andermans verwachtingen te voldoen?"   
+*Even als metafoor:* een gezonde verkenning is als een spontane roadtrip omdat je de route mooi en interessant vindt. Jezelf iets aanpraten is als op de snelweg rijden omdat je denkt dat je die route móét gaan rijden terwijl je eigenlijk honger hebt en moet plassen. **Tip:** Als je antwoord is: "nou gewoon, omdat het *hot* is!", dan is het groen. Als je antwoord is: "omdat mijn *partner* het graag wil", dan is dat geen stoplicht voor rood, maar wel voor oranje: pauzeer en onderzoek even verder of jij het *zelf* ook graag wilt.
 
 ### 2\. De SMaak-test (het broodje-kaas-metafoor)
 
