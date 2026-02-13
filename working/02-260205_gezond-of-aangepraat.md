@@ -30,7 +30,7 @@ Gezonde verlangens leiden meestal tot een positief emotioneel patroon:
 * **VOOR:** gezonde spanning, nieuwsgierigheid, een beetje angst (niks mis met gezonde spanning en angst), een 'er-naar-toe-lekkere-spanning'.  
 * **TIJDENS:** 'aanwezigheid', flow, en \-zelfs als het intens is- besef van je eigen grenzen (van dat moment). Ook al vind je het over een jaar ge-wel-dig om brood met kaas te eten. Als het je *nu* niet smaakt, dan mag je nu gewoon "Nee" zeggen.  
 * **ERNA:** voldoening, verbondenheid (met jezelf en/of met de ander), zachtheid. Geen aanhoudende schaamte of leegte.
-Als dat jouw patroon is: eerst obsessief fantaseren \> dan even snel doen (misschien wel met half dissociëren) \> dan diepe schaamte of afkeer en alles weer weggooien (dat noemen we wel de binge-purge cirkel), dan is je interne GPS aan het roepen: "Ofwel: ga alsjeblieft een andere route en ergens *anders* naartoe\!", *ofwel* "Ga eerst eens wat voorwerk doen zodat je niet telkens in een rondje hoeft te rokden"
+Als dat jouw patroon is: eerst obsessief fantaseren \> dan even snel doen (misschien wel met half dissociëren) \> dan diepe schaamte of afkeer en alles weer weggooien (dat noemen we wel de binge-purge cirkel), dan is je interne GPS aan het roepen: "Ofwel: ga alsjeblieft een andere route en ergens *anders* naartoe\!", *ofwel* "Ga eerst eens wat *voor*werk doen, zodat je niet telkens hetzelfde rondje hoeft te rijden"
 
 ### 4\. Het "leven-buiten-de-slaapkamer"-test
 
