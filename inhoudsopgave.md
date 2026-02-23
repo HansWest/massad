@@ -21,12 +21,12 @@ Op basis van de eigen inleiding: vragen die vaak gepaard gaan met schaamte, twij
 
 3. [03 — Hoe vind je een passende Domina?](work-in-progress/03-260223_vind-je-domina.md)
 	Focus: realistische verwachtingen, valkuilen, professional vs. particulier, fantasie vs. realiteit.  
-	Omvang: **1929 woorden**, **9449 letters**.
+	Omvang: **1831 woorden**, **8932 letters**.
     [Blob](https://github.com/HansWest/massad/blob/main/work-in-progress/03-260223_vind-je-domina.md)
 
 4. [04 — Hoe ontwikkel ik mijn dominantie?](work-in-progress/04-260203_dominantie-ontwikkelen.md)
 	Focus: dominantie als vaardigheid, driehoek (geilheid-relatie-techniek), rituelen en realiteitscheck.  
-	Omvang: **1675 woorden**, **8555 letters**.
+	Omvang: **1397 woorden**, **6993 letters**.
     [Blob](https://github.com/HansWest/massad/blob/main/work-in-progress/04-260203_dominantie-ontwikkelen.md)
 
 
