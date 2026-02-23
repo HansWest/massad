@@ -1,12 +1,4 @@
 
-Kan je een artikel schrijven voor een geïnteresseerd, maar niet per se hoger geschoold publiek, met een beetje humor - maar geen platte humor -. Schrijf het als kink aware coach in de stijl van de blogposts in http://KinkindeRelatie.nl.
-En eindig met een toelichting of nadere uitleg voor meer geschoolde mensen (voor geïnteresseerden en professionals)
-
-En het onderwerp is: Hoe vind ik een passende Domina (en valkuilen zijn o.a. : gelijk in de rol willen stappen, geen ervaring -professioneel proberen?-, binge-purge circle, fantasie is niet realiteit)
-Graag aanvullingen en literatuurverwijzingen in de tekst (zeker bij het laatste stukje)
-
-
-
 # Op zoek naar je Domina? Valkuilen, verwachtingen en de zoektocht naar de juiste match
 
 Dus. Je hebt ontdekt dat je warm loopt bij het idee om je over te geven aan eeen vrouw. Die gedachte aan een sterke, zelfverzekerde vrouw die de touwtjes in handen neemt (soms letterlijk) laat je niet meer los. Je wilt niet alleen fantaseren, je wilt het *echt* gaan beleven. Jij wilt op zoek naar je Domina.

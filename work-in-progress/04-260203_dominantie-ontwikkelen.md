@@ -1,14 +1,4 @@
 
-Kan je een artikel schrijven voor een geïnteresseerd, maar niet per se hoger geschoold publiek, met een beetje humor - maar geen platte humor -. Schrijf het als kink aware coach in de stijl van de blogposts in http://KinkindeRelatie.nl.
-En eindig met een toelichting of nadere uitleg voor meer geschoolde mensen (voor geïnteresseerden en professionals)
-Het onderwerp is:
-Hoe ontwikkel ik (M/V/X) mijn dominantie? 
-'echte' domina's of dominanten bestaan niet. (de driehoek van: geilheid: dominantie is durven gáán voor wat jij zelf geil vindt, 'ethiek&relatie': zo veel relatie opbouwen dat jouw sub het achteraf graag (voor jou) gedaan heeft, 'technieken & goede materialen: les nemen en  aanschaffen -soms is goedkoop ECHT duurkoop-) verder: het eigen rituelen vinden en ontwikkelen -kleding-muziek, locatie-,  fantasie is niet realiteit)
-Graag aanvullingen en literatuurverwijzingen in de tekst  zelf (zeker bij het laatste stukje)
-
-
----
-
 ### **Help, ik wil een beetje de baas spelen! (Maar hoe dan?)**
 *Een artikel over het ontwikkelen van je dominantie, zonder in rare clichés te vervallen.*
 
@@ -55,23 +45,18 @@ Bovenstaand artikel is bewust laagdrempelig gehouden, maar het onderwerp 'ontwik
 **1. Deconstructie van de 'Natuurlijke' Dominant:**
 Het artikel stelt dat "echte dominanten niet bestaan". Dit verwijst naar de kritische blik op essentialistische opvattingen over dominantie als een aangeboren, onveranderlijke eigenschap. In lijn met het sociaal constructionisme zien we dominantie veeleer als een **performance**, een rol die wordt ingenomen en bekrachtigd binnen een specifieke interactionele en relationele context (Foucaults idee van macht als iets dat *gedaan* wordt, niet *bezeten*). De 'authenticiteit' van een dominant ligt niet in een statische kern, maar in de congruentie tussen de interne belevingswereld en de externe performance.
 
-**2. De Trias BDSM-pedagogica:**
-De driehoek uit het artikel is een vereenvoudigde weergave van een model dat in de kink-community vaak wordt gebruikt:
-*   **Geilheid (Lust/Agens):** Dit is de drijvende kracht, de *libidineuze energie*. Het erkennen en claimen van de eigen, soms politiek incorrecte of schaamtevolle, verlangens is een cruciale stap in het ontwikkelen van een gezonde dominante identiteit. Het is een proces van **embodiment**, waarbij het hoofd leert volgen wat het lichaam en het diepere zelf al weten.
-*   **Ethiek & Relatie (Zorg & Toestemming):** Dit sluit aan bij het concept van **RACK (Risk-Aware Consensual Kink)** en het ethische raamwerk van zorgethiek. De 'zorg' van de dominant voor de kwetsbaarheid van de sub is geen teken van zwakte, maar de basisvoorwaarde voor diepgaand en transformerend spel. Het gaat om het opbouwen van wat psychoanalyticus Jessica Benjamin wederzijdse erkenning noemt: een dynamiek waarin beide partners in staat zijn de subjectiviteit van de ander te erkennen, zelfs binnen een schijnbaar ongelijke machtsstructuur.
+**2. De Dominantie Triangle:**
+De driehoek uit het artikel is een vereenvoudigde weergave vanuit de workshops: 
+*   **Geilheid (Lust/Agens):** Dit is de drijvende kracht, de *libidineuze energie*. Het erkennen en claimen van de eigen, soms politiek incorrecte of schaamtevolle, verlangens is een cruciale stap in het ontwikkelen van een gezonde dominante identiteit. Het is een proces van **embodiment** en acceptatie.
+*   **Ethiek & Relatie (Zorg & Toestemming):** Dit sluit aan bij het concept van **RACK (Risk-Aware Consensual Kink)** en het ethische raamwerk van zorgethiek. De 'zorg' van de dominant voor de kwetsbaarheid van de sub is geen teken van zwakte, maar de basisvoorwaarde voor diepgaand en transformerend spel. Het gaat om het opbouwen van wederzijdse erkenning (Jessica Benjamin): een dynamiek waarin beide partners in staat zijn de subjectiviteit van de ander te erkennen, zelfs binnen een schijnbaar ongelijke machtsstructuur.
 *   **Techniek & Materiaal (Competentie):** Dit is het pragmatische, ambachtelijke aspect. Kennisoverdracht via workshops, literatuur en mentorship is essentieel voor risicoreductie (anatomie bij bondage, hygiëne bij impactspel). De investering in kwalitatief materiaal is een uiting van **duty of care**.
 
 **3. Ritueel en Transitionele Ruimte:**
-Het ontwikkelen van eigen rituelen (kleding, muziek, locatie) helpt bij het creëren van een **transitionele ruimte** (D.W. Winnicott). Dit is een psychologische speelruimte, los van de alledaagse realiteit, waarin experimenteren en exploratie veilig mogelijk zijn. De rituelen fungeren als drempel: ze markeren de overgang van de profane naar de 'heilige' (of beter: 'geladen') speelruimte, wat zowel dominant als sub helpt om in hun rol te stappen.
+Het ontwikkelen van eigen rituelen (kleding, muziek, locatie) helpt bij het creëren van een **transitionele ruimte**. Dit is een psychologische speelruimte, los van de alledaagse realiteit, waarin experimenteren en exploratie veilig mogelijk zijn. De rituelen fungeren als drempel: ze markeren de overgang naar de 'speel'ruimte, wat zowel dominant als sub kan helpen om in hun rol te stappen.
 
 **4. Het onderscheid Fantasie en Realiteit:**
-Dit is een cruciaal psychologisch inzicht. De interne fantasiewereld is onbegrensd en ideaal. De realiteit van BDSM-spel wordt begrensd door lichamelijke beperkingen, emotionele fluctuaties en praktische omstandigheden. Het kunnen verdragen van deze discrepantie, zonder dat dit leidt tot desillusie, is een teken van psychologische volwassenheid binnen de kink. Het is het verschil tussen een *scène* en de *relatie* waarin die scène ingebed is.
+Dit is een cruciaal psychologisch inzicht. De interne fantasiewereld is onbegrensd en ideaal. De realiteit van BDSM-spel wordt begrensd door lichamelijke beperkingen, emotionele fluctuaties en praktische omstandigheden. Het kunnen verdragen van deze discrepantie, zonder dat dit hoeft te leiden tot desillusie, is belangrijk binnen kink. Het is het verschil tussen een *scène* en de *relatie* waarin die scène ingebed is.
 
-**Aanbevolen literatuur:**
-*   **Voor de praktijk & ethiek:** *Dossie Easton & Janet W. Hardy, "The New Topping Book"*. (De absolute klassieker over ethiek en het perspectief van de dominant).
-*   **Psychologisch perspectief:** *Meg-John Barker, "Rewriting the Rules"*. (Biedt een uitstekend, toegankelijk overzicht van relationele diversiteit, inclusief BDSM).
-*   **Filosofische verdieping:** *Jessica Benjamin, "The Bonds of Love"*. (Een psychoanalytische verkenning van dominantie en onderwerping, met name haar werk over erkenning is relevant).
-*   **Anatomie & Techniek:** *Jay Wiseman, "SM 101: A Realistic Introduction"*. (Een breed en praktisch naslagwerk, hoewel sommige technische details gedateerd kunnen zijn, blijft de basis solide).
-*   **Nederlandstalig & community-gericht:** *De blogs en eventuele publicaties van KinkindeRelatie.nl zelf*. (Bij uitstek geschikt voor de lokale context en om community-bronnen te vinden).
+Door dominantie te benaderen als een continu proces van zelfonderzoek, relationeel afstemmen en vaardigheden opbouwen, ontstaat er ruimte voor een identiteit die zowel authentiek als verantwoordelijk is. Het is eerder een **creatief** iets, eerder een **ambacht**, geen *vaststaand 'persoons-gegeven'*.
 
-Door dominantie te benaderen als een continu proces van zelfonderzoek, relationeel afstemmen en vaardigheden opbouwen, ontstaat er ruimte voor een identiteit die zowel authentiek als verantwoordelijk is. Het is een ambacht, geen vaststaand gegeven.
+*meer hierover op kinkaware.info*
