@@ -83,5 +83,6 @@ Voor een professional is het cruciaal om onderscheid te maken tussen het *inhure
 *Het begeleiden van iemand op zijn of haar reis naar de ontdekking en integratie van BDSM-verlangens is een voorrecht. Het vraagt om geduld, kennis en een diep respect voor de unieke manier waarop ieder individu zijn of haar seksualiteit en identiteit vormgeeft.*
 
 Goeie reis, op zoek naar jouw ding.
+
 Hans
 *Kinkinderelatie.nl*
