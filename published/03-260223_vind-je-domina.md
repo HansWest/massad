@@ -82,9 +82,6 @@ Voor een professional is het cruciaal om onderscheid te maken tussen het *inhure
 
 *Het begeleiden van iemand op zijn of haar reis naar de ontdekking en integratie van BDSM-verlangens is een voorrecht. Het vraagt om geduld, kennis en een diep respect voor de unieke manier waarop ieder individu zijn of haar seksualiteit en identiteit vormgeeft.*
 
----
-
-### Aanbevolen literatuur
-- **Goerlich, S., & Helfer, E. (2025).** *BDSM and Kink: The Basics*. Routledge. Dit boek wordt aanbevolen voor zowel professionals als geïnteresseerden die een gedegen, wetenschappelijk onderbouwd en tegelijkertijd toegankelijk overzicht zoeken .
-- **Carlström, C. (2013).** *BDSM fantasies become practice*. Konferentiepaper, WAS. Voor wie geïnteresseerd is in de sociologische en maatschappelijke kaders van BDSM-fantasieën en -praktijken .
-- Daarnaast is het aan te raden om je te verdiepen in de beginselen van 'RACK' (Risk-Aware Consensual Kink) als mogelijk alternatief of aanvulling op het bekendere 'SSC' (Safe, Sane and Consensual), omdat dit beter aansluit bij de inherente risicos van sommige spelvormen.
+Goeie reis, op zoek naar jouw ding.
+Hans
+*Kinkinderelatie.nl*
