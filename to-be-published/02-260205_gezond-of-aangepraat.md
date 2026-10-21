@@ -17,24 +17,24 @@ Een gezond verlangen voelt als een uitnodiging, niet als een *dwang*. Vraag jeze
 
 Stel je voor: je fantaseert over iets dat je partner wil proberen, maar je bent niet overtuigd. Vraag jezelf: "Als dit een broodje kaas was, zou ik het dan eten?"
 
-* "Nee, ik houd niet van kaas" \= Duidelijke grens.  
-* "Ik weet het niet, misschien met chutney?" \= Mogelijkheden tot onderhandeling.  
-* "JA, en ik voeg er nog wat extra paprikapoeder aan toe\!" \= Enthousiaste, geïnformeerde toestemming. 
+* "**Nee**, ik houd niet van kaas" \= Duidelijke grens.  
+* "**Ik weet het niet**, als jij nou vast de boterhammen snijdt dan ga ik kijken welke kaas lekker is?" \= Mogelijkheden tot onderhandeling.  
+* "**JA\!**, en ik voeg er nog wat extra paprikapoeder aan toe voor mij\!" \= Enthousiaste, geïnformeerde toestemming. 
 
 De kern is: je moet het broodje **zelf** *willen eten*. Niet omdat het menu zegt dat het moet, niet omdat je partner je ervan probeert te overtuigen, en al *helemaal* niet omdat je denkt dat jouw smaakpapillen 'fout' zijn als je niet van broodjes kaas houdt.
 
 ### 3\. De "Voor/Tijdens/Na" Scan (de emotionele driehoek in tijd)
 
-Gezonde verlangens leiden meestal tot een positief emotioneel patroon:
+Gezonde verlangens leiden meestal ook tot een positief emotioneel patroon:
 
-* **VOOR:** gezonde spanning, nieuwsgierigheid, een beetje angst (niks mis met gezonde spanning en angst), een 'er-naar-toe-lekkere-spanning'.  
-* **TIJDENS:** 'aanwezigheid', flow, en \-zelfs als het intens is- besef van je eigen grenzen (van dat moment). Ook al vind je het over een jaar ge-wel-dig om brood met kaas te eten. Als het je *nu* niet smaakt, dan mag je nu gewoon "Nee" zeggen.  
+* **VOORDIEN:** gezonde spanning, nieuwsgierigheid, een beetje angst (niks mis met gezonde spanning en angst), maar er is een 'er-naar-toe-lekkere-spanning'.  
+* **TIJDENS:** 'aanwezigheid', flow, en \-zelfs als het intens is- besef van je eigen grenzen (van dat moment). Ook al vind je het over een jaar ge-wel-dig om brood met kaas te eten. Als het je *nu* niet smaakt, dan mag je nu gewoon *"Nee"* zeggen.  
 * **ERNA:** voldoening, verbondenheid (met jezelf en/of met de ander), zachtheid. Geen aanhoudende schaamte of leegte.
 Als dat jouw patroon is: eerst obsessief fantaseren \> dan even snel doen (misschien wel met half dissociëren) \> dan diepe schaamte of afkeer en alles weer weggooien (dat noemen we wel de binge-purge cirkel), dan is je interne GPS aan het roepen: "Ofwel: ga alsjeblieft een andere route en ergens *anders* naartoe\!", *ofwel* "Ga eerst eens wat *voor*werk doen, zodat je niet telkens hetzelfde rondje hoeft te rijden"
 
 ### 4\. Het "leven-buiten-de-slaapkamer"-test
 
-Bloei jij op in andere levensgebieden? Loop je ineens op wolken omdat je loopt te grijnzen van wat je afgelopen weekend allemaal hebt gedaan? Of krimpt je wereld tot alleen dit ene verlangen? Een gezond verlangen past in een gebalanceerd leven. Het is een *ingrediënt* van wie je bent, niet je hele identiteitsmaaltijd. Als je vrienden, werk, hobby's en zelfzorg eronder lijden, is het tijd om de routeplanner nog eens te laten kijken of er geen andere routes zijn naar plezier en genot.
+Bloei jij op in andere levensgebieden? Loop je ineens op wolken en loop je in jezelf te grijnzen van wat je afgelopen weekend allemaal hebt gedaan? Of krimpt je wereld ineen tot alleen dit ene verlangen? Een gezond verlangen past in een gebalanceerd leven. Het is een *ingrediënt* van wie je bent, niet je hele identiteitsmaaltijd. Als je vrienden, werk, hobby's en zelfzorg eronder lijden, is het tijd om de routeplanner nog eens te laten kijken of er geen andere routes zijn naar plezier en genot.
 
 ## Conclusie:
 
