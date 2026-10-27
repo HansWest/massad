@@ -8,12 +8,12 @@ Geen paniek. Deze twijfel is niet alleen normaal, het is een *gezonde twijfel*. 
 
 ## Vier checkpoints voor jouw eigen gezondheidscheck
 
-### 1\. De "Waarom-nu" Check (de Motivatie-analyse)
+### 1\. De "Waarom-nu" Check (Motivatie-analyse)
 
 Een gezond verlangen voelt als een *uitnodiging*, niet als een *dwang*. Vraag jezelf af: "Komt dit vanuit nieuwsgierigheid, plezier of zelfontdekking?"… Of komt het vanuit een drang om pijn in mezelf te verdoven, een oude leegte te vullen, of aan andermans verwachtingen te voldoen?"   
 *Even als metafoor:* een gezonde verkenning is als een spontane roadtrip omdat je de route mooi en interessant vindt. Jezelf iets aanpraten is als op de snelweg rijden omdat je denkt dat je die route móét gaan rijden terwijl je eigenlijk honger hebt en moet plassen. **Tip:** Als je antwoord is: "nou gewoon, omdat het *hot* is!", dan is het groen. Als je antwoord is: "omdat mijn *partner* het graag wil", dan is dat geen stoplicht voor rood, maar wel voor oranje: pauzeer en onderzoek even verder of jij het *zelf* ook graag wilt.
 
-### 2\. De SMaak-test (het broodje-kaas-metafoor)
+### 2\. De SMaak-test (broodje-kaas-metafoor)
 
 Stel je voor: je fantaseert over iets dat je partner wil proberen, maar je bent niet overtuigd. Vraag jezelf: "Als dit een broodje kaas was, zou ik het dan eten?"
 
@@ -23,7 +23,7 @@ Stel je voor: je fantaseert over iets dat je partner wil proberen, maar je bent 
 
 De kern is: je moet het broodje **zelf** *willen eten*. Niet omdat het menu zegt dat het moet, niet omdat je partner je ervan probeert te overtuigen, en al *helemaal* niet omdat je denkt dat jouw smaakpapillen 'fout' zijn als je niet van broodjes kaas houdt.
 
-### 3\. De "Voor/Tijdens/Na" Scan (de emotionele driehoek in tijd)
+### 3\. De "Voor/Tijdens/Na" Scan (een emotionele driehoek in tijd)
 
 Gezonde verlangens leiden meestal ook tot een positief emotioneel patroon:
 
@@ -50,10 +50,10 @@ Twijfel je of je jezelf iets aanpraat? Gefeliciteerd, je bent een reflecterend m
 
 ### **Bonus-Tips voor geïnteresseerden en professionals**
 
-1. **Vervang "Is dit gezond?" eens door "Wat *maakt* dit gezond of ongezond?"** Dit verschuift meer van een binair oordeel naar een functionele analyse. Onderzoek context, intentie en uitvoering. Seks is belangrijk, maar niet het enige in een leven.  
-2. **Check de motivatiedriehoek:** Verken de balans tussen **Plezier/Verbinding**, **Zelfexpressie/Identiteit**, en **Coping/Trauma-response**. Geen enkele punt van die driehoek is "fout", maar dominantie van met name die derde optie vraagt wel meer om zorgvuldige begeleiding.  
+1. **Vervang "Is dit gezond?" eens door "Wat *maakt* dit gezond of ongezond?"** Dit verschuift meer van een oordeel naar een analyse van de functie. Onderzoek context, intentie en uitvoering. Seks is belangrijk, maar niet het enige in een leven.  
+2. **Check de motivatiedriehoek:** Verken de balans tussen **Plezier/Verbinding**, **Zelfexpressie/Identiteit**, en **Coping/Trauma-response**. Geen enkele punt van die driehoek is 'fout', maar dominantie van met name die derde optie vraagt wel meer om zorgvuldige begeleiding.  
 3. **Consent als een vaardigheid, niet een checkbox:** Focus niet alleen op "was er toestemming?", maar op "*hoe wordt* toestemming gegeven en ontvangen?", "*hoe* vraag ik daar om?". Is het een fijn, dynamisch, geïnformeerd gesprek geweest? Of lijkt er toch wel druk te zijn gezet om 'gelijk te krijgen'?  
 4. **Differentieer schaamte van schuld:** Schaamte ("Ik *ben* verkeerd") is giftig. Schuldgevoel ("Ik *deed* iets dat niet handig was, dat niet helemaal klopt bij mijn waarden") kan een gezond moreel kompas zijn. Dat is een waardevol onderscheid om te maken. 
-5. **Normalisatie met een likje humor:** Als je met iemand anders praat en de wens van die persoon niet helemaal jouw ding is, verval dan niet gelijk in *'pathologiseren'*. Een beetje luchtigheid ontwapent. "Dus je hebt een fascinatie voor... \[iets\]. Goh, de menselijke geest is toch een prachtig creatief orgaan. Laten we eens kijken wat het voor je *doet*, in plaats van of het *raar* of 'ziek' zou zijn. Want je zult *altijd* mensen hebben die leuke dingen raar of 'ziek' vinden..."
+5. **Normalisatie met een likje humor:** Als je met iemand anders praat en de wens van die persoon niet helemaal jouw ding is, verval dan niet gelijk in *'pathologiseren'*. Een beetje luchtigheid ontwapent. "Dus je hebt een fascinatie voor... \[iets\]. Goh, de menselijke geest is toch een prachtig creatief orgaan. Laten we eens kijken wat het voor je *doet*, in plaats van of het *raar* of 'ziek' zou zijn. Want je zult *altijd* mensen tegen komen die leuke dingen raar of 'ziek' vinden..."
 
 ---
