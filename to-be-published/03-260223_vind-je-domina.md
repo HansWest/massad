@@ -27,13 +27,13 @@ Dit is best een gevoelig punt. Binnen de scene zijn grofweg twee soorten Domina'
 
 Veel beginners denken: "Een particuliere Domina, dat is *echt*! Dan is het vanuit passie, niet om geld." En dat kan waar zijn. Maar er zit een risico aan vast. Een particuliere speelpartner is niet per definitie beter opgeleid, heeft niet per definitie meer ervaring, en is jou ook helemaal niks verplicht. Zij zoekt een partner voor *haar* ideale spel, en als jij daar niet in past (als beginnende sub), dan lig je eruit. En dat is haar goed recht, maar voor jou als zoekende beginner kan het voelen als afwijzing. En het kan moeilijker worden om (leuke) ervaring op te doen.
 
-Een professionele dominatrix daarentegen… tja, die is inderdaad professioneel. Zij heeft (de *goeien*) verstand van veiligheid, van psychologie, van hygiëne en van techniek. Zij weet hoe ze iemand veilig kan brengen en vooral ook *terug* kan halen uit een intense ervaring . Zij is een *VAKVROUW* en ze zal haar best doen om jou de ervaring te geven die jij zoekt. Is het dan 'echt'? Of is het een eerste echte ervaring?
+Een professionele dominatrix daarentegen… tja, die is inderdaad professioneel. Zij heeft (als vakvrouw) verstand van veiligheid, van psychologie, van hygiëne en van techniek. Zij weet hoe ze iemand veilig kan brengen en vooral ook *terug* kan halen uit een intense ervaring. Zij is een *VAKVROUW* en ze zal haar best doen om jou de ervaring te geven die jij zoekt. Is het dan 'echt'? Of is het een eerste echte ervaring?
 Dat is aan jou om dat voor jezelf te beslissen.
 
-Zie het als een sport. Je kunt voetballen met een stel vrienden in het park (particulier). Dat is gezellig en leuk. Maar als je de fijne kneepjes van het spel wilt leren, ga je naar een professionele trainer. Als je vragen wilt kunnen stellen of wilt kunnen aangeven wat je wel-en-niet zoekt... een professionele Domina kan die trainer zijn misschien. Ze is er niet (alleen) voor haar eigen plezier, maar voor *jouw* ervaring. En ja, daar vragen ze een vergoeding voor. Omdat het hun werk is, hun expertise, hun tijd en hun vaak indrukwekkend gevulde speelgoedkamer(s). Het is geen 'liefde kopen', het is 'expertise inhuren'. En dat is een wereld van verschil .
+Zie het als een sport. Je kunt voetballen met een stel vrienden in het park (particulier). Dat is gezellig en leuk. Maar als je de fijne kneepjes van het spel wilt leren, ga je naar een professionele trainer. Als je vragen wilt kunnen stellen of wilt kunnen aangeven wat je wel-en-niet zoekt... een professionele Domina kan misschien die trainer zijn. Ze is er niet (alleen) voor haar eigen plezier, maar voor *jouw* ervaring. En ja, daar vragen ze een vergoeding voor. Omdat het hun werk is, hun expertise, hun tijd en hun vaak indrukwekkend gevulde speelgoedkamer(s). Het is geen 'liefde kopen', het is 'expertise inhuren'. En dat is een wereld van verschil.
 Maar je kunt ook op internetfora vragen stellen, contacten zoeken, eerste experimenten zoeken. Dat is niet 'echter' of 'beter'. Dat is een andere route.
 
-### Valkuil 3: De Binge-Purge Circle (of: de cyclus van de tompoes)
+### Valkuil 3: De Binge-Purge Cirkel (de cyclus van kopen en weggooien)
 
 Oké, deze is belangrijk. Je kent het misschien wel: je ontdekt een nieuwe, spannende interesse. Je duikt erin, leest, kijkt... en voor je het weet heb je voor honderden euro's aan gear besteld. Harnassen, riemen, zweepjes, een latex catsuit... De uitpuilende online winkelwagen is afgerekend: heerlijk! 
 Dit is de 'binge'-fase.
@@ -45,7 +45,7 @@ En dan... een paar maanden later begint het kriebelen weer. Die opwinding komt t
 
 Deze emotionele achtbaan is uitputtend en helaas herkenbaar voor velen. Het wordt veroorzaakt door schaamte en het niet kunnen rijmen van je 'nette' levensidentiteit met je 'kinky' verlangens. Het is de schok van de realiteit versus de roes van de fantasie.
 
-**De remedie:** Haal adem. Je bent niet gek; je verlangens zijn oké. Maar koop die 'gear' *nog niet*. Investeer eerst eens in *kennis*. Lees boeken, volg een workshop, praat met gelijkgestemden. Stel vragen op een munch. Bouw het op zoals je een nieuwe hobby zou opbouwen: stap voor stap. Een goede eerste aankoop is geen zweep, maar een boek over *communicatie en veiligheid in BDSM*. Goerlich & Helfer schreven bijvoorbeeld een toegankelijk basisboek over dit onderwerp dat vele valkuilen kan helpen voorkomen .
+**De remedie:** Haal adem. Je bent niet gek; je verlangens zijn oké. Maar koop die 'gear' *nog niet*. Investeer eerst eens in *kennis*. Lees boeken, volg een workshop, praat met gelijkgestemden. Stel vragen op een munch. Bouw het op zoals je een nieuwe hobby zou opbouwen: stap voor stap. Een goede eerste aankoop is geen zweep, maar een boek over *communicatie en veiligheid in BDSM*. Goerlich & Helfer schreven bijvoorbeeld een toegankelijk basisboek over dit onderwerp dat vele valkuilen kan helpen voorkomen.
 
 ### Valkuil 4: De film in je hoofd vs. de realiteit
 
@@ -72,7 +72,7 @@ De reis naar het vinden van een Domina is een reis van zelfontdekking. Geniet er
 Het bovenstaande artikel is geschreven voor een breed publiek, maar het onderwerp kent natuurlijk diepere lagen die voor professionals (zoals coaches, seksuologen en therapeuten) de moeite waard zijn om te belichten.
 
 ### De psychologie van sub-frenzy en de binge-purge cyclus
-Het fenomeen 'sub-frenzy' kan worden gezien als een uiting van een plotselinge, overweldigende ontdekking van een kernonderdeel van de eigen identiteit. Het gaat gepaard met een dopaminerge rush die het beoordelingsvermogen kan vertroebelen. De daaropvolgende 'purge' is klassiek voorbeeld van cognitieve dissonantie: de individu kan de nieuw ontdekte, 'duistere' kant van zichzelf niet rijmen met het geïnternaliseerde zelfbeeld, wat leidt tot wegduwen van alles wat met die identiteit te maken heeft. Het doorbreken van deze cyclus is een belangrijk onderdeel van zelfacceptatie.
+Het fenomeen 'sub-frenzy' kan worden gezien als een uiting van een plotselinge, overweldigende ontdekking van een kernonderdeel van de eigen identiteit. Het gaat gepaard met een dopaminerge rush die het beoordelingsvermogen kan vertroebelen. De daaropvolgende 'purge' is een klassiek voorbeeld van cognitieve dissonantie: het individu kan de nieuw ontdekte, 'duistere' kant van zichzelf niet rijmen met het geïnternaliseerde zelfbeeld, wat leidt tot wegduwen van alles wat met die identiteit te maken heeft. Het doorbreken van deze cyclus is een belangrijk onderdeel van zelfacceptatie.
 
 ### De kloof tussen fantasie en realiteit
 Fantasieën dienen vaak als een 'veilige oefenruimte' voor de psyche, waarin alle variabelen zo fijn onder controle zijn. In de realiteit spelen externe factoren en de eigen autonomie van de partner een rol, wat kan leiden tot teleurstelling of zelfs tot een *negatieve* emotionele reactie. De BDSM-praktijk biedt soms een 'alibi' om te spelen met macht en identiteit, iets wat buiten de scène onmogelijk is. Dit 'alibi' biedt spelruimte en onderzoeksruimte, en het vereist een sterke 'container' van vertrouwen en communicatie die beginners niet altijd (h)erkennen.
@@ -85,4 +85,4 @@ Voor een professional is het cruciaal om onderscheid te maken tussen het *inhure
 Goeie reis, op zoek naar jouw ding.
 
 Hans
-*Kinkinderelatie.nl*
+*KinkindeRelatie.nl*
