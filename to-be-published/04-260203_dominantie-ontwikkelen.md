@@ -36,6 +36,7 @@ Zodra je deze drie hoeken begint uit te breiden, gebeurt er iets magisch. Je ont
 En vergeet niet: **fantasie is geen realiteit**. Wat je in je hoofd bedenkt, is vaak extremer, vloeiender of perfecter dan de werkelijkheid. In de praktijk kan een knoop tegenzitten, kan iemand ineens moeten niezen, of is de stemming gewoon even anders. En dat is helemaal *oké!* De realiteit is vaak rommeliger, maar ook veel echter en intiemer. Lachen om een mislukt tapexperiment is net zo'n onderdeel van jullie dynamiek als het serieuze spel.
 
 Dus, om te beginnen: stop met zoeken naar de 'echte' dominan(t) in de spiegel. Begin met kijken naar de persoon die je ziet, en bedenk wat *die* persoon nu écht opwindt. Durf daarvoor te gaan, bouw een stevig vertrouwen op met je partner, en zorg dat je gereedschap én je kennis scherp zijn. De rest is oefenen, ontdekken en vooral: heel veel plezier maken.
+
 *meer hierover op KinkindeRelatie.nl*
 
 ---
